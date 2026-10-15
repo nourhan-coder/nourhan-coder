@@ -19,6 +19,4 @@ With a strong **scientific background**, I bring a rigorous analytical mindset, 
 
 ---
 
-📫 **Get in Touch:**
-- **LinkedIn:** [Your LinkedIn Profile Link]
-- **Services:** Open for Freelance Projects, Data Visualization & Analytics Consulting.
+
